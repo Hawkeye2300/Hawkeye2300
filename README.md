@@ -15,7 +15,7 @@
 - 📫 How to reach me jlough2@proton.me
 - 😄 Pronouns: I/me
 - ⚡ Fun fact:  I perform Traumatic Incident Reduction Facilitation...very gratifying.
-               As a professsional hydrologist, I can state the Maine is a place to be.
+               As a professsional hydrologist, I can say with confidence that Maine is a place to be.
                Happily married 40 years,
 <!---
 Hawkeye2300/Hawkeye2300 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
